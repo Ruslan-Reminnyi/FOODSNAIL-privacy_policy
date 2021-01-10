@@ -1,0 +1,1 @@
+# FOODSNAIL-privacy_policy
